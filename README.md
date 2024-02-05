@@ -1,1 +1,1 @@
-# gamelade.vn
+Welcome to [Gamelade.vn](https://gamelade.vn/) - The ideal destination to update all information about the gaming world. Here, we are committed to bringing you quality articles, the fastest news and in-depth analysis of each game, new game technology and the gaming community.
